@@ -1,0 +1,2 @@
+# startsomewhere
+ideas
